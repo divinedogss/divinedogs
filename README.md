@@ -1,4 +1,4 @@
-![me](https://media.discordapp.net/attachments/1210918875844190290/1220034518333915196/Untitled56_20240320215757.png?ex=660d78b0&is=65fb03b0&hm=1b5af244f42f14b5920064a88efe143abea77279576c092c071a6008dd0979f7&=&format=webp&quality=lossless&width=626&height=270)
+![me](https://media.discordapp.net/attachments/1210918875844190290/1225506712832708628/Untitled56_20240320215757.png?ex=66216111&is=660eec11&hm=1e016a83ed11c9cfec3f80dead61931344587d30c707993d934152c575a0b0a7&=&format=webp&quality=lossless&width=500&height=216)
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀   ¹ crush ⠀![](https://media.discordapp.net/attachments/1112668274677780571/1144588296236826634/IMG_2588.gif?ex=6606a06b&is=65f42b6b&hm=1c336b6166159b9b879e00a9cbdbbac6b1adcb577f5bdae820da6004ebc8a702&=&width=22&height=22) ⠀ ² volt
 
