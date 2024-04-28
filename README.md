@@ -1,5 +1,2 @@
-　this　song　is　for　a　girl　who　will　never　know　its　about　her
-
-![](https://media.discordapp.net/attachments/1210918875844190290/1228844683971788830/Untitled86_20240414031133.png?ex=662d85cb&is=661b10cb&hm=6687538f320f6892e6fc9c630ad76d553554e6b14da13ad9227f246d8d20cd7d&=&format=webp&quality=lossless&width=612&height=344)
-
-i　know　its　pretty　stupid　but　i'm　much　too　shy　to　tell　her
+![](https://media.discordapp.net/attachments/1210918875844190290/1234047116087656498/13ef4b3f0721f85982b0678ba29ec330.jpg?ex=662f4f6f&is=662dfdef&hm=1a55b881adb45497eb874f20c352a47b6ed6caa7ee7c2e8b668ef60ceaaaf52f&=&format=webp&width=562&height=550)
+me n the sexy bitch i pulled off teh street
