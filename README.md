@@ -6,5 +6,5 @@
 ![](https://files.catbox.moe/tf5sxi.png)
 
 
-
-wip ehehe
+　
+　━╋━━━ 　　**[rentry](https://rentry.co/itadoriiyuji)**　　**[dni](https://rentry.co/vessellofsukuna)**　　**[byi](https://rentry.co/megumisbf)** all of these r a wip ehehe give me some time ^_^
