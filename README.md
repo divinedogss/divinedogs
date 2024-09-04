@@ -1,1 +1,1 @@
-
+rentry.co/shunsui
