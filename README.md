@@ -3,7 +3,7 @@ FIND ME SOMEBODY TO LOOOOV FIND ME SOMEBODY TO LOOVVEEEE FIND ME SOMEBODY TO LOO
 i like persona 5, jjk, kny, omori, hsr, genshin, CHERRY CRUSH and more
 
 ![](https://files.catbox.moe/msilnx.webp)
-guys i cant stress this enough pls sign my retrospring https://retrospring.net/@kyoraku
+guys i cant stress this enough pls sign my retrospring https://retrospring.net/@amamiyas
 and READ MY RENTRY UTS /SHUNSUI
 
 EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI EX FRIENDS DNI  
