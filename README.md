@@ -5,4 +5,4 @@ i like persona 5, jjk, kny, omori, hsr, genshin, CHERRY CRUSH and more
 ![](https://files.catbox.moe/msilnx.webp)
 READ MY RENTRY UTS /REFRESHING
 
-EX FRIENDS DNI
+EX FRIENDS/PARTNERS/ANYONE DNI
