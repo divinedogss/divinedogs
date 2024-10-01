@@ -2,7 +2,6 @@ FIND ME SOMEBODY TO LOOOOV FIND ME SOMEBODY TO LOOVVEEEE FIND ME SOMEBODY TO LOO
 
 i like persona 5, jjk, kny, omori, hsr, genshin, CHERRY CRUSH and more
 
-![](https://files.catbox.moe/msilnx.webp)
 READ MY RENTRY UTS /REFRESHING
 
 EX FRIENDS/PARTNERS/ANYONE DNI
