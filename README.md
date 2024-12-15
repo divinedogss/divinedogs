@@ -1,7 +1,1 @@
-FIND ME SOMEBODY TO LOOOOV FIND ME SOMEBODY TO LOOVVEEEE FIND ME SOMEBODY TO LOOOOOOOOOVVVVVVVVVVVVEEEEEEEE
-
-i like persona 5, jjk, kny, omori, hsr, genshin, CHERRY CRUSH and more
-
-READ MY RENTRY UTS /REFRESHING
-
-EX FRIENDS/PARTNERS/ANYONE DNI
+i dont have any friends but you can sign my tree if you want to make me feel better
