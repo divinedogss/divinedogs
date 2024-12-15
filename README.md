@@ -1,1 +1,2 @@
-i dont have any friends but you can sign my tree if you want to make me feel better
+hi im very shy so i probably wont approach you
+plz be nice to me i dont have any friends
