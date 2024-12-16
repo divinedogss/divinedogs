@@ -6,4 +6,4 @@ i mean its not like im unfriendly im just usually too scared to approach pretty 
 
 plz dont colorpick it makes me sad. but u can ask for inspo i promise i wont bite
 
-where am i irl right now?: home.. just um. watchin parkour civilization 
+where am i irl right now?: home! likely to respond to whispers!
