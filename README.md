@@ -2,4 +2,4 @@ i might make this pretty later
 
 plz dont colorpick it makes me sad. but u can ask for inspo i promise i wont bite
 
-where am i irl right now?: rollerskating! cant respond to u. lol
+dont try to get to know me fully if you cant handle touching jokes or dark humor thx
