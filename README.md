@@ -1,5 +1,5 @@
-i might make this pretty later
+![](https://files.catbox.moe/d1rcyq.png)
 
-plz dont colorpick it makes me sad. but u can ask for inspo i promise i wont bite
-
-ughhh idk what to put here
+![](https://files.catbox.moe/y8sra4.png)
+![](https://files.catbox.moe/7ed9rl.png)
+alt text: 春水 he it they male minor. very friendly, say hi to me if you want! system of 16+, system host, boothill irl. any ships can interact! view on lightmode
